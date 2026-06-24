@@ -1,0 +1,2 @@
+# gag2script
+SCRIPT MADE BY MATH
